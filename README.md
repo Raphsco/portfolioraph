@@ -1,1 +1,1 @@
-wwww.secondelife.fr
+www.secondelife.fr
